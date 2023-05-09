@@ -1,1 +1,1 @@
-# jatomprakash
+ome.github.io
